@@ -1,5 +1,4 @@
-# vankudoth
-Ravana
+
 How to get knowledge?
   To reading books!
   Or to watch TV, mobile!!
